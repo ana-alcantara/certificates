@@ -7,7 +7,7 @@ If you have any questions, inquiries about my participation in specific events, 
 
 Name: Ana Gabrielle Alcantara
 
-Email: acalcantara3@alum.up.edu.ph
+Email: acalcantara3@up.edu.ph / acalcantara3@alum.up.edu.ph
 
 LinkedIn: https://www.linkedin.com/in/ana-gabrielle-alcantara/
 
